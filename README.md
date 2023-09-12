@@ -1,1 +1,1 @@
-![final2](https://github.com/Stormlocc/NoSQL-CompareQueryEmbebedReference/assets/65676970/60729baf-4d95-4a83-894a-26ab6b0bcfdf)![final2](https://github.com/Stormlocc/NoSQL-CompareQueryEmbebedReference/assets/65676970/d5485925-8171-4391-88cb-8a7122d30acd)
+![final2](https://github.com/Stormlocc/NoSQL-CompareQueryEmbebedReference/assets/65676970/60729baf-4d95-4a83-894a-26ab6b0bcfdf)
